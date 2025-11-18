@@ -1,5 +1,5 @@
 
-# 🌿  **[Emerald Token (EMR)](https://www.linkedin.com/in/mdnabeelemerald/)**.  
+# 🌿  **[Emerald Token (EMR)](https://www.linkedin.com/in/mdnabeelofficial/)**.  
 
 **Total Supply**: 200,000,000 EMR  
 **Decimals**: 9  
